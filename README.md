@@ -1,1 +1,0 @@
-# Case-Paradise-luxiano
